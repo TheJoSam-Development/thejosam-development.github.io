@@ -1,1 +1,0 @@
-# thejosam-development.github.io
